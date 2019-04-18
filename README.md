@@ -19,6 +19,6 @@ Dies alles soll für ein Bewusstsein sorgen, welche Probleme die neue EU-Urheber
 
 Einer der wichtigen Punkte der Lizenz ist, das Eintreiben der Gebühren jedem zu erlauben und dafür einen Teil der Lizenzkosten abzutreten. Dadurch können sich Menschen finden, die beruflich die entsprechenden Verlage auf Verstöße durchsuchen und Sammelklagen durchführen. Das mag schmutzig wirken, aber es soll vor allem die "Klagearbeit" vom kleinen Künstler weg bringen, zu Menschen die sich das Risiko leisten können oder wollen, sich mit skrupellosen Konzernen vor Gericht zu duellieren.
 
-Auf den nächsten Seiten folgt der Lizenztext. Ich gebe ihn ohne Einschränkungen für jegliche Verwendung frei. Ich bin kein Jurist, daher weiß ich nicht ob alle darin aufgeführten Bedingungen überhaupt rechtlich durchsetzbar sind. Ich weiß nicht einmal ob dies eine gute Idee ist, aber bevor ich gar nichts mache, versuche ich es zumindest.
+Ich gebe den Lizenztext und die zugehörigen Bilder ohne Einschränkungen für jegliche Verwendung frei. Ich bin kein Jurist, daher weiß ich nicht ob alle darin aufgeführten Bedingungen überhaupt rechtlich durchsetzbar sind. Ich weiß nicht einmal ob dies eine gute Idee ist, aber bevor ich gar nichts mache, versuche ich es zumindest.
 
 Wenn sich jemand rechtlich auskennt, wäre ich natürlich immer für Hinweise dankbar.
